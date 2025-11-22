@@ -70,7 +70,7 @@ This work is licensed under the **MIT License**.
 ## 🔗 Official Links
 - 📘 ResearchGate Project: [Coming Soon]  
 - 🌐 OSF Archive: [Coming Soon]  
-- 🧩 Contact: *nadia.ansar [at] jamiahamdard.edu / LinkedIn Profile*  
+📩 Contact: nadia.ansar [at] jamiahamdard.edu | nadiaansar33 [at] gmail.com  
 
 ---
 
